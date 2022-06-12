@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @tybomb21
-- 👀 I’m interested in food, travel, sports, gaming.
 - 🌱 I’m currently learning comp sci - software engineering
 - 📫 How to reach me tyllerrmorgan21@gmail.com
 - @tybomb_21
