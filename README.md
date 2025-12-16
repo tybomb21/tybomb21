@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Tyler
-- 🌱 I’m a recent graduate. I earne my BS Computer Science focusing in Software Engineering
+- 🌱 I’m a recent graduate. BS Computer Science focusing in Software Engineering
 - I'm looking for jon oppourtunities that open the door into the tech world.
 - 📫 How to reach me tyllerrmorgan21@gmail.com
 - @tybomb_21
